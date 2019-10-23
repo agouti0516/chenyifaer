@@ -7,4 +7,4 @@
 可能这里不会及时更新  
 
 
-需要的可以看下这里  https://www.loadream.com/forum-XieZhen-1.html
+需要的可以看下这里  更多信息看这里 https://www.loadream.com/loadream-2417-1-1.html
